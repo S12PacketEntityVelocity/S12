@@ -2,6 +2,8 @@
 
 - Verus Airline enjoyer
 
+[POWER X] TRY TELEPORT FAIL [TRY AGAIN YESTERDAY]
+
 
 
 
