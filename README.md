@@ -4,7 +4,6 @@
 - Professional funny packet sender
 - Zemmour enthusiast
 
-[POWER X] TRY TELEPORT FAIL [TRY AGAIN YESTERDAY]
 
 
 
